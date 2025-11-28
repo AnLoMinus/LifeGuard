@@ -1,5 +1,7 @@
 # 🛡️ פיקוח נפש דוחה שבת
 
+<img width="1024" height="1536" alt="Cosmic LifeGuard Emblem Design" src="https://github.com/user-attachments/assets/846f4b55-6d7f-43fa-945c-f2b4bee3c8b0" />
+
 ### **LifeGuard – LG**
 
 **תאריך:**
